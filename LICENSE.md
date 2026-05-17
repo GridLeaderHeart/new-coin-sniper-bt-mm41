@@ -1,4 +1,4 @@
-# 
+# exclusive bot de ataque sandwich scripts es el mejor bot de ataque sandwich scripts con sniper DEX y detección de gems de baja capitalización. Seguro, confiable y optimizado para
 
 
 
